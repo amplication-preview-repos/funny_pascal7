@@ -1,0 +1,1 @@
+# funny_pascal7
